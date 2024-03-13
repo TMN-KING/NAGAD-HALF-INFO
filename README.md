@@ -1,0 +1,1 @@
+# NAGAD-HALF-INFO
